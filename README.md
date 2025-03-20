@@ -3,4 +3,4 @@
 ![img](https://imgur.com/gAX90t7.png)
 
 ![img](https://imgur.com/cqhVcX1.png)
-[![img](https://imgur.com/ItU45G9.png)](https://blessedbayous.straw.page/)[![img](https://imgur.com/moYTiVy.png)](https://rentry.co/blessedbayous)[![img](https://imgur.com/WbCZUKi.png)](https://neospring.org/@brylee)
+[![img](https://imgur.com/ItU45G9.png)](https:/pristineprowler.straw.page/)[![img](https://imgur.com/moYTiVy.png)](https://rentry.co/brylees)[![img](https://imgur.com/WbCZUKi.png)](https://neospring.org/@brylee)
