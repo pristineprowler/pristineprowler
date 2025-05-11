@@ -1,5 +1,1 @@
-![confectionarycase](https://imgur.com/ajB5aZu.png)
-![notebook/lightbox](https://imgur.com/5oBISAC.png)
-![cuddlebug](https://imgur.com/Q7ljnMI.png)
-![berryfunny](https://imgur.com/Ft44o1G.png)
-![browserhistory/shellvision](https://imgur.com/sSrMny0.png)
+![die](https://imgur.com/St6DbtN.png)
