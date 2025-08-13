@@ -1,1 +1,1 @@
-![goonsplash](https://imgur.com/eQoNBdc.png)
+![foxy](https://imgur.com/jnPsb1Q.png)
