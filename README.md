@@ -1,1 +1,1 @@
-![foxy](https://imgur.com/jnPsb1Q.png)
+![goopy](https://imgur.com/1fNzuVu.png)
