@@ -1,2 +1,1 @@
-![goopy](https://imgur.com/jVCYG7l.png)
-IS EVERY SPAM FOLLOWER JUST ILLITERATE OR SOMETHING I DONT WANT YALLLLLLLLLLLL GO AWAY
+this is never getting done bruh
